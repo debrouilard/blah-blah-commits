@@ -10,3 +10,4 @@ hya hu
 I genuinely feel unloved
 Noone could love me the way i do
 And noone can reassure someone the way i do
+Noone can be as loyal as me
