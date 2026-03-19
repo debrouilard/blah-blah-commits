@@ -8,3 +8,4 @@ i have no idea
 i jut want a lighter green on my profile thats all it is
 hya hu
 I genuinely feel unloved
+Noone could love me the way i love
