@@ -13,3 +13,4 @@ And noone can reassure someone the way i do
 Noone can be as loyal as me
 for fuck sakes am always feeling shit and shitier everyday noone loves me and noone can reciprocate the thing I do for them.
 Noone can ever do that for me
+Noone reassures me the way i do
