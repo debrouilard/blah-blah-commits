@@ -7,3 +7,4 @@ Hey people
 i have no idea
 i jut want a lighter green on my profile thats all it is
 hya hu
+I genuinely feel unloved
