@@ -24,3 +24,5 @@ hihihi
 blah blah commits
 I saw wuthering heights and am not okay
 i rebuke this kind of love
+maybe i want him to claim me
+i want my love to be as deep as them and also a love that is worth fighting for and we actually do fight for each other
