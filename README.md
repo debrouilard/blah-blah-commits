@@ -26,4 +26,8 @@ I saw wuthering heights and am not okay
 i rebuke this kind of love
 maybe i want him to claim me
 i want my love to be as deep as them and also a love that is worth fighting for and we actually do fight for each other
+
 to keep each other
+
+
+I have always knew that we ashould ty to keep the things we love at all cost but today made it sense deeper had he stayed she wouldnt have dies and he wouldnt have wept
