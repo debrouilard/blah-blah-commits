@@ -27,6 +27,8 @@ can they see a private repo os am i just the ony one who is having such things t
 
 edsacxz
 
+i want to be as smart as possible
+i want to build something usefl for my people.
 
 efwdscxz
  yahhh cuz
