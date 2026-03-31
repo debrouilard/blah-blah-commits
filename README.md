@@ -12,3 +12,5 @@ am i even lazy to up;dat etneh readme so i can have a very great profile?
  i need a very igh tgreen onmy profile i want it to be so light hwenebr somoent viists it
 
 i can't move on baby doll
+
+waiting on calls
